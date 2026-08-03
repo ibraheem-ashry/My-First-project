@@ -1,2 +1,0 @@
-## Its my first time 
-its my first time with doing this stuff so i think its good to know how to connect with my mentor right now so i hope its lead me to improve my skills in communication in the present and will be more good in the future 
